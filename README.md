@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Jayant6755
 - 👀 I’m interested in sports
 - 🌱 I’m currently learning computer science
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking for Jobs and Internships
 - 📫 To reach me - jayantnegi28@gmail.com 
 
 <!---
