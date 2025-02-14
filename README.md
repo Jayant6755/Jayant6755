@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Jayant6755
+- 👋 Hi, I’m @Jayant6575
 - 👀 I’m interested in sports
 - 🌱 I’m currently learning computer science
 - 💞️ I’m looking for Jobs and Internships
